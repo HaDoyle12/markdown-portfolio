@@ -1,0 +1,1 @@
+Experienced Information Technology Analyst with a demonstrated history of working in the *computer software industry*. Skilled in _Business Planning, Microsoft Word, Communication, Management, and IT Audit_. Strong business development professional with a Bachelor's degree focused in Accounting and Information Technology Management from Florida State University.
